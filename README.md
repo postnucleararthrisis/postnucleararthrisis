@@ -1,4 +1,4 @@
-https://adriansblinkiecollection.neocities.org/g17.gif
+huge wip let me cook guys
 
 <!--
 **postnucleararthrisis/postnucleararthrisis** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
