@@ -1,5 +1,8 @@
 huge wip let me cook guys
 
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/6ccd65fb-59de-46f9-b0a6-714bd3950093" />
+
+
 <!--
 **postnucleararthrisis/postnucleararthrisis** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
