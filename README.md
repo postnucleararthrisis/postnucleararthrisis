@@ -6,3 +6,6 @@
 ; i LOVE chatting and unless i have 'dni' in my name i don't bite <3
 
 ; see my pronouns.cc for my DNIs
+
+
+<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/7fdc360b-17a8-4a4b-aa2c-d6c4bfae195f" />
