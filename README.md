@@ -1,6 +1,5 @@
-huge wip let me cook guys
+<img width="498" height="281" alt="image" src="https://github.com/user-attachments/assets/ff11eff4-9ce1-461a-b25d-f082c7b374ba" />
 
-<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/6ccd65fb-59de-46f9-b0a6-714bd3950093" />
 
 
 <!--
