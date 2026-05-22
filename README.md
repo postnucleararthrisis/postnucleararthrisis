@@ -8,5 +8,6 @@
 ; see my pronouns.cc for my DNIs
 
 
-<img width="1198" height="451" alt="image" src="https://github.com/user-attachments/assets/27cf3463-45a6-49b6-a50e-ba1ec80fc1a6" />
+<img width="1200" height="793" alt="image" src="https://github.com/user-attachments/assets/dd150b47-35a1-474d-a5da-2a341ca5ed50" />
+
 
