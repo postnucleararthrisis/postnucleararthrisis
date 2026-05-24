@@ -10,7 +10,9 @@
 ; see my pronouns.cc for all my DNIs
 
 
-<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/0ed49d24-ecdb-48f8-849f-6ed6da87d83f" />  <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/9a752881-91d8-4d30-8edf-7360414aa76f" />  <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/621ef0a3-ecee-4ba0-9e38-ee9ee0c0b0b4" />  <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/c7a60452-55d6-414c-9ab4-6983634a9583" />  <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/46f1b59c-a4e7-4d5c-8660-cfdad2eab0c5" />  <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/523395e4-2382-44b8-9a50-8308e3b6ec21" />
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/0ed49d24-ecdb-48f8-849f-6ed6da87d83f" />  <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/9a752881-91d8-4d30-8edf-7360414aa76f" />  <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/621ef0a3-ecee-4ba0-9e38-ee9ee0c0b0b4" />  <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/c7a60452-55d6-414c-9ab4-6983634a9583" />  <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/46f1b59c-a4e7-4d5c-8660-cfdad2eab0c5" />  <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/938a3852-d2f0-4a38-abbc-16e93635e3d6" />
+
+
 
 
 
