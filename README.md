@@ -5,6 +5,8 @@
 
 ; i LOVE chatting and unless i have 'dni' in my name i don't bite <3
 
+; do not copy my skins and please do not hide unless friends ^^
+
 ; sometimes the punctuation on my keyboard gets all weird so i avoid using it and i come off as dry SORRY
 
 ; see my pronouns.cc for more info + all my DNIs
