@@ -9,11 +9,9 @@
 
 ; do not copy my skins and please do not hide unless friends ^^ (LIGHT inspo is fine!)
 
-; sometimes the punctuation on my keyboard gets all weird so i avoid using it and i come off as dry SORRY
-
 ; see my pronouns.cc for more info + all my DNIs
 
-; i follow cool people, people with my same interests and my friendz!!! :P
+; i follow cool people, people with my same interests (block if unwanted) and my friendz!!! :P
 
 **PostNuclear on artfight - let's be moots!!!**
 
