@@ -11,7 +11,7 @@
 
 ; do not copy my skins and please do not hide unless friends ^^ (LIGHT inspo is fine!)
 
-; see my pronouns.cc for more info + all my DNIs
+; see my pronouns.cc for more info + DNI list
 
 ; i follow cool people, people with my same interests (block if unwanted) and my friendz!!! :P
 
