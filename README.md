@@ -5,6 +5,9 @@
 
 (this is all very ugly deal with it erm.....)
 
+**BYI:**
+i ALWAYS match the energy of who i'm talking to; i may be awkward at first and i tend to interact with more talkative people; it's VERY likely that i'll avoid you if we just became friends, apologies for that. if you have a problem with me be mature and talk to me about it instead of putting me in your DNI list or something, ty!
+
 ; interactions and c+h are always encouraged unless the name clearly states the opposite !
 
 ; i LOVE chatting and unless i have 'dni' in my name i don't bite <3
