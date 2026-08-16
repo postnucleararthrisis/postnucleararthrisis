@@ -39,7 +39,7 @@ if you know me irl no you don't
 <img width="907" height="426" alt="image" src="https://github.com/user-attachments/assets/f6484467-4280-4df7-93b2-e72413c9947c" />
 
 
-
+![image](https://media.tenor.com/GSz6LhaOMqIAAAAi/legs-undertale.gif)
 
 
 
