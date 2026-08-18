@@ -42,7 +42,7 @@ if you know me irl no you don't
 ![image](https://media.tenor.com/GSz6LhaOMqIAAAAi/legs-undertale.gif)
 
 
-
+![image](https://media1.tenor.com/m/1jsU9Kldu5YAAAAd/bna-brand-new-animal.gif)
 
 
 
