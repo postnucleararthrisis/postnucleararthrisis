@@ -1,13 +1,6 @@
  ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fpostnucleararthrisis&label=scoutlings&labelColor=%23f47373&countColor=%23ffffff&style=plastic)
 
-
-
-
-
-
-<img width="735" height="292" alt="download (2)" src="https://github.com/user-attachments/assets/feae51e7-dbff-403f-bf74-f952b855c759" />
-
-
+<img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/c08d19cf-e8cc-4985-a5d0-16b7889364c0" />
 
 
 (this is all very ugly deal with it erm.....)
@@ -48,7 +41,7 @@ if you know me irl no you don't
 
 
 
-
+<img width="735" height="292" alt="download (2)" src="https://github.com/user-attachments/assets/feae51e7-dbff-403f-bf74-f952b855c759" />
 
 
 
