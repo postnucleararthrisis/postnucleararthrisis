@@ -36,5 +36,6 @@ if you know me irl no you don't
 
 <img width="735" height="292" alt="download (2)" src="https://github.com/user-attachments/assets/feae51e7-dbff-403f-bf74-f952b855c759" />
 
+<img width="720" height="667" alt="image" src="https://github.com/user-attachments/assets/a98b42ae-a011-42e6-ac2f-79cd2c5cdf82" />
 
 
