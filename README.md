@@ -1,6 +1,7 @@
  ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fpostnucleararthrisis&label=scoutlings&labelColor=%23f47373&countColor=%23ffffff&style=plastic)
 
-<img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/c08d19cf-e8cc-4985-a5d0-16b7889364c0" />
+<img width="1001" height="291" alt="image" src="https://github.com/user-attachments/assets/32056889-c12f-40b3-a869-90aeefd864be" />
+
 
 
 (this is all very ugly deal with it erm.....)
