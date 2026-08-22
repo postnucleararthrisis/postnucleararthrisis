@@ -22,12 +22,10 @@ if you know me irl no you don't
 
 ; i follow cool people, people with my same interests (block if unwanted) and my friendz!!! :P
 
-
+![image](https://media.tenor.com/GSz6LhaOMqIAAAAi/legs-undertale.gif)
 
 <img width="907" height="426" alt="image" src="https://github.com/user-attachments/assets/f6484467-4280-4df7-93b2-e72413c9947c" />
 
-
-![image](https://media.tenor.com/GSz6LhaOMqIAAAAi/legs-undertale.gif)
 
 
 ![image](https://media1.tenor.com/m/1jsU9Kldu5YAAAAd/bna-brand-new-animal.gif)
