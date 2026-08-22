@@ -9,6 +9,8 @@ i ALWAYS match the energy of who i'm talking to; i occasionally use tone indicat
 
 <img width="1080" height="360" alt="image" src="https://github.com/user-attachments/assets/601218b8-a082-4d95-8424-05595f5188da" />
 
+![image](https://media.tenor.com/PrerY6pCf60AAAAi/bacondance-eddsworld.gif) ![image](https://media.tenor.com/AmCYoXlzZVoAAAAi/baconatt-eddsworld.gif)
+
 
 if you know me irl no you don't
 
