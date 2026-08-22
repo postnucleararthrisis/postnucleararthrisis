@@ -9,7 +9,8 @@
 **BYI:**
 i ALWAYS match the energy of who i'm talking to; i occasionally use tone indicators and may need them from time to time; i may be awkward at first and i tend to interact with more talkative people; i might have mood swings and text drily if i'm upset; it's VERY likely that i'll avoid you if we just became friends, it's most likely not your fault. DO NOT TALK TO ME ABOUT ANYTHING REGARDING V*MIT. also this is random but please avoid using the yawning emote around me. if you have a problem with me be mature and talk to me about it instead of putting me in your DNI list or something, ty! 
 
-![image](https://media1.tenor.com/m/wHvpUx7MTNQAAAAd/michiru-kagemori-bna.gif)
+<img width="1080" height="360" alt="image" src="https://github.com/user-attachments/assets/601218b8-a082-4d95-8424-05595f5188da" />
+
 
 if you know me irl no you don't
 
