@@ -1,5 +1,7 @@
  ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fpostnucleararthrisis&label=scoutlings&labelColor=%23f47373&countColor=%23ffffff&style=plastic)    (this is all very ugly deal with it erm.....)
 
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312xikg4gsd35z37bktlpddprsd4&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&mode=dark&bar_color=ffffff&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=312xikg4gsd35z37bktlpddprsd4&redirect=true)
 <img width="1001" height="291" alt="image" src="https://github.com/user-attachments/assets/32056889-c12f-40b3-a869-90aeefd864be" />
 
 
