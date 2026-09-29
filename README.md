@@ -41,3 +41,4 @@ if you know me irl no you don't
 <img width="720" height="667" alt="image" src="https://github.com/user-attachments/assets/a98b42ae-a011-42e6-ac2f-79cd2c5cdf82" />
 
 
+<img width="425" height="285" alt="Screenshot (2106)" src="https://github.com/user-attachments/assets/e800679b-6e3a-43af-83c4-8249ef156614" />
