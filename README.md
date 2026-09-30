@@ -16,9 +16,9 @@ if you have a problem with me be mature and talk to me about it instead of putti
 ![image](https://media.tenor.com/PrerY6pCf60AAAAi/bacondance-eddsworld.gif) ![image](https://media.tenor.com/AmCYoXlzZVoAAAAi/baconatt-eddsworld.gif)
 
 
-if you know me irl no you don't
+; if you know me irl no you don't
 
-; interactions and c+h are always encouraged unless the name clearly states the opposite !
+; interactions and c+h are always encouraged unless the name clearly states the opposite ! i usually only do very unserious RPs with my friends so yeah
 
 ; i LOVE chatting and unless i have 'dni' in my name i don't bite <3
 
