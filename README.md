@@ -1,4 +1,4 @@
- ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fpostnucleararthrisis&label=scoutlings&labelColor=%23f47373&countColor=%23ffffff&style=plastic)    (this is all very ugly deal with it erm.....)
+ ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fpostnucleararthrisis&label=scoutlings&labelColor=%23f47373&countColor=%23ffffff&style=plastic)    (this is all very ugly deal with it erm.....) - sniper banner by dddeerbo
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312xikg4gsd35z37bktlpddprsd4&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&mode=dark&bar_color=ffffff&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=312xikg4gsd35z37bktlpddprsd4&redirect=true)
@@ -11,7 +11,8 @@ i ALWAYS match the energy of who i'm talking to; i occasionally use tone indicat
 
 if you have a problem with me be mature and talk to me about it instead of putting me in your DNI list or something, ty! 
 
-<img width="1080" height="360" alt="image" src="https://github.com/user-attachments/assets/601218b8-a082-4d95-8424-05595f5188da" />
+<img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/8f155d39-f341-4001-ad6a-0e87b528cc63" />
+
 
 ![image](https://media.tenor.com/PrerY6pCf60AAAAi/bacondance-eddsworld.gif) ![image](https://media.tenor.com/AmCYoXlzZVoAAAAi/baconatt-eddsworld.gif)
 
@@ -30,9 +31,9 @@ if you have a problem with me be mature and talk to me about it instead of putti
 
 ![image](https://media.tenor.com/GSz6LhaOMqIAAAAi/legs-undertale.gif)
 
-<img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/eb617c4b-58b0-4215-a8ad-c3e086c59218" />
+<img width="1080" height="360" alt="image" src="https://github.com/user-attachments/assets/601218b8-a082-4d95-8424-05595f5188da" />
 
-sniper banner by dddeerbo
+
 
 
 ![image](https://media1.tenor.com/m/1jsU9Kldu5YAAAAd/bna-brand-new-animal.gif)
