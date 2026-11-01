@@ -30,8 +30,9 @@ if you have a problem with me be mature and talk to me about it instead of putti
 
 ![image](https://media.tenor.com/GSz6LhaOMqIAAAAi/legs-undertale.gif)
 
-<img width="907" height="426" alt="image" src="https://github.com/user-attachments/assets/f6484467-4280-4df7-93b2-e72413c9947c" />
+<img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/eb617c4b-58b0-4215-a8ad-c3e086c59218" />
 
+sniper banner by dddeerbo
 
 
 ![image](https://media1.tenor.com/m/1jsU9Kldu5YAAAAd/bna-brand-new-animal.gif)
