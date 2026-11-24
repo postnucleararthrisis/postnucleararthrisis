@@ -4,7 +4,7 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312xikg4gsd35z37bktlpddprsd4&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&mode=dark&bar_color=ffffff&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=312xikg4gsd35z37bktlpddprsd4&redirect=true)
 <img width="1001" height="291" alt="image" src="https://github.com/user-attachments/assets/32056889-c12f-40b3-a869-90aeefd864be" />
 
-
+im working on my strawpage #trust
 
 **BYI:**
 i ALWAYS match the energy of who i'm talking to; i occasionally use tone indicators and may need them from time to time; i may be awkward at first and i tend to interact with more talkative people; i might have mood swings and text drily if i'm upset; it's VERY likely that i'll avoid you if we just became friends, it's most likely not your fault. DO NOT TALK TO ME ABOUT ANYTHING REGARDING V*MIT. also this is random but please avoid using the yawning emote around me. 
