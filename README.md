@@ -16,6 +16,7 @@ if you have a problem with me be mature and talk to me about it instead of putti
 
 ![image](https://media.tenor.com/PrerY6pCf60AAAAi/bacondance-eddsworld.gif) ![image](https://media.tenor.com/AmCYoXlzZVoAAAAi/baconatt-eddsworld.gif)
 
+**MORE INFO:**
 
 ; if you know me irl no you don't
 
@@ -25,7 +26,7 @@ if you have a problem with me be mature and talk to me about it instead of putti
 
 ; do not copy my skins and please do not hide unless friends ^^ (LIGHT inspo is fine!)
 
-; see my pronouns.cc for more info + DNI list
+; see my pronouns.cc for all my fandoms + DNI list
 
 ; i follow cool people, people with my same interests (block if unwanted) and my friendz!!! :P
 
